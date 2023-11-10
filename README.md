@@ -28,4 +28,7 @@ Welcome to My Amazon Affiliate Picks. Support the channel by shopping through [m
 - [**Solimo Dark Roast Coffee Pods:**](https://amzn.to/3HQ7ekV)
   Compatible with Keurig 2.0 K-Cup Brewers, 100 Count
 
+- [**White Shy Guy Mask**](https://amzn.to/3Qyro7x)
+- White Shy Guy Mask, Halloween Mask, Full Face Mask, Costume Cosplay Prop Accessories
+
 
