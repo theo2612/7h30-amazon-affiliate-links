@@ -7,6 +7,9 @@ Welcome to My Amazon Affiliate Picks. Support the channel by shopping through [m
 - [**Linux Basics for Hackers:**](https://amzn.to/3CRhbfs)
   Get Started with Networking, Hacking, and Security in Kali
 
+- [**Amazon Video Game Deals**](https://www.amazon.com/s?k=video+games&i=videogames&camp=1789&creative=9325&linkCode=ur2&linkId=62ef8789832ef45b83222b08fc16f6e8&tag=doy07-20)
+  Amazon Video Game Deals all ready for you to click on
+
 - [**HP 32-Inch M32fw FHD Monitor:**](https://amzn.to/46UMFQ1)
   Full HD (1920 x 1080), AMD FreeSync 31.5 Inches
 
@@ -29,6 +32,6 @@ Welcome to My Amazon Affiliate Picks. Support the channel by shopping through [m
   Compatible with Keurig 2.0 K-Cup Brewers, 100 Count
 
 - [**White Shy Guy Mask**](https://amzn.to/3Qyro7x)
-- White Shy Guy Mask, Halloween Mask, Full Face Mask, Costume Cosplay Prop Accessories
+  White Shy Guy Mask, Halloween Mask, Full Face Mask, Costume Cosplay Prop Accessories
 
 
