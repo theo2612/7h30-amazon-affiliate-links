@@ -7,6 +7,8 @@ Welcome to My Amazon Affiliate Picks. Support the channel by shopping through [m
 - [**Linux Basics for Hackers:**](https://amzn.to/3CRhbfs)
   Get Started with Networking, Hacking, and Security in Kali
 
+- [**Murach's Python Programing**](https://amzn.to/3FU4dzD)
+
 - [**Amazon Video Game Deals**](https://www.amazon.com/s?k=video+games&i=videogames&camp=1789&creative=9325&linkCode=ur2&linkId=62ef8789832ef45b83222b08fc16f6e8&tag=doy07-20)
   Amazon Video Game Deals all ready for you to click on
 
