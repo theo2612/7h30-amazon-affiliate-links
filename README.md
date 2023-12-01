@@ -7,6 +7,15 @@ Welcome to My Amazon Affiliate Picks. Support the channel by shopping through [m
 - [**Linux Basics for Hackers:**](https://amzn.to/3CRhbfs)
   Get Started with Networking, Hacking, and Security in Kali
 
+- [**Automate the Boring Stuff:**](https://amzn.to/46BGyz1)
+  Buy on Amazon to support the stream or click here for the free version https://automatetheboringstuff.com/
+
+- [**Cameron's Coffee Highlander Grog Flavored Ground Coffee:**](https://amzn.to/3GlCKXY)
+  Light Roast, 100% Arabica, 32-Ounce Bag
+
+  - [**Cameron's Coffee Highlander Grog Flavored Ground Coffee:**](https://amzn.to/46E2XM3)
+  Single Serve Pods, Light Roast, 12 Count (Pack of 6) 
+
 - [**Murach's Python Programing**](https://amzn.to/3FU4dzD)
   by Michael Urban and Joel Murach
 
