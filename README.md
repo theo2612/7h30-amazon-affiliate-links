@@ -1,8 +1,8 @@
-# My Amazon Picks
+# My Affiliate Links
 
-Welcome to My Amazon Affiliate Picks. Support the channel by shopping through [my affiliate link](https://amzn.to/3n1nAgO) or via these links:
+Welcome to My Affiliate Links page. Support the channel by shopping through [my Amazon affiliate link](https://amzn.to/3n1nAgO), my [TCM academy affiliate Link](https://academy.tcm-sec.com/courses/?affcode=770707_seneyt4m) 
 
-## Explore These Awesome Recommendations:
+## Or Explore These Awesome Recommendations:
 
 - [**Linux Basics for Hackers:**](https://amzn.to/3CRhbfs)
   Get Started with Networking, Hacking, and Security in Kali
