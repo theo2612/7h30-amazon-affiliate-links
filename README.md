@@ -25,10 +25,10 @@ Welcome to My Affiliate Links page. Support the channel by shopping through [my 
 - [**Amazon Video Game Deals**](https://www.amazon.com/s?k=video+games&i=videogames&camp=1789&creative=9325&linkCode=ur2&linkId=62ef8789832ef45b83222b08fc16f6e8&tag=doy07-20)
   Amazon Video Game Deals all ready for you to click on
 
-- [**HP 32-Inch M32fw FHD Monitor:**](https://amzn.to/46UMFQ1)
+- [**HP 32-Inch M32fw FHD Monitor:**](https://amzn.to/3NIVJjo)
   Full HD (1920 x 1080), AMD FreeSync 31.5 Inches
 
-- [**Sceptre 27-Inch FHD LED Gaming Monitor:**](https://amzn.to/3QsPamL)
+- [**Sceptre 27-Inch FHD LED Gaming Monitor:**](https://amzn.to/3GXzkuI)
   75Hz, 2X HDMI, VGA
 
 - [**CORSAIR K70 CORE RGB Mechanical Gaming Keyboard with Palmrest:**](https://amzn.to/3RCl67n)
