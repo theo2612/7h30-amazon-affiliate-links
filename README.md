@@ -31,11 +31,17 @@ Welcome to My Affiliate Links page. Support the channel by shopping through [my 
 - [**Sceptre 27-Inch FHD LED Gaming Monitor:**](https://amzn.to/3QsPamL)
   75Hz, 2X HDMI, VGA
 
-- [**Corsair K95 RGB Platinum XT Mechanical Gaming Keyboard:**](https://amzn.to/46H2x8)
-  Backlit RGB LED, CHERRY MX SPEED RGB Silver (Renewed)
+- [**CORSAIR K70 CORE RGB Mechanical Gaming Keyboard with Palmrest:**](https://amzn.to/3RCl67n)
+  Pre-lubricated Corsair MLX Red Linear Keyswitches - Sound Dampening - Media Control Dial - iCUE Compatible - QWERTY NA Layout - Black
 
-- [**CORSAIR M65 Pro RGB FPS Gaming Mouse:**](https://amzn.to/3Q5MIBg)
-  12,000 DPI, Tunable Weights, Black
+- [**CORSAIR HARPOON WIRELESS RGB Gaming Mouse:**](https://amzn.to/3vgJYu2)
+  10,000 DPI - 6 Programmable Buttons - Lightweight - Bluetooth - USB - Black
+
+- [**8Bitdo Arcade Stick for Switch & Windows:**](https://amzn.to/3RHVrdF)
+  Arcade Fight Stick Support Wireless Bluetooth, 2.4G Receiver and Wired Connection
+
+- [**8Bitdo Retro Mechanical Keyboard:**](https://amzn.to/3RFDgFn)
+  Bluetooth/2.4G/USB-C Hot Swappable Gaming Keyboard with 87 Keys, Dual Super Programmable Buttons for Windows and Android - N Edition
 
 - [**Samson Technologies Q2U USB/XLR Dynamic Microphone:**](https://amzn.to/3N4X80f)
   Recording and Podcasting Pack
