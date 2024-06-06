@@ -1,4 +1,4 @@
-# My Affiliate Links
+# My Affiliate Links - https://theo2612.github.io/7h30-amazon-affiliate-links/
 
 Welcome to My Affiliate Links page. Support the channel by shopping through [my Amazon affiliate link](https://amzn.to/3n1nAgO), my [TCM academy affiliate Link](https://academy.tcm-sec.com/courses/?affcode=770707_seneyt4m) 
 
