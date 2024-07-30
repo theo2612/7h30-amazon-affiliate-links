@@ -55,6 +55,9 @@ Welcome to My Affiliate Links page. Support the channel by shopping through [my 
 - [**White Shy Guy Mask**](https://amzn.to/3Qyro7x)
   White Shy Guy Mask, Halloween Mask, Full Face Mask, Costume Cosplay Prop Accessories
 
+- [**Stanley Cross Body**](https://amzn.to/4c5wIYE)
+  23 oz Travel Bottle with Jacquard Strap | Leakproof Tritan Lid with Removable Straw | Recycled Stainless Steel | Double-Wall Vacuum Insulation 
+
 - [**:**]()
 
 
