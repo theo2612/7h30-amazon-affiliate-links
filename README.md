@@ -4,7 +4,7 @@ Welcome to My Affiliate Links page. Support the channel by shopping through [my 
 
 ## Or Explore These Awesome Recommendations:
 
-- [OCOOPA 2 in 1 Magnetic Rechargeable Hand Warmers](https://www.amazon.com/dp/B0CC17DW35?ref=t_ac_view_request_product_image&campaignId=amzn1.campaign.26KRYVMHI7P85&linkCode=tr1&tag=doy07-20&linkId=amzn1.campaign.26KRYVMHI7P85_1726660573976)
+- [OCOOPA 2 in 1 Magnetic Rechargeable Hand Warmers - **40% off NOW**](https://www.amazon.com/dp/B0CC17DW35?ref=t_ac_view_request_product_image&campaignId=amzn1.campaign.26KRYVMHI7P85&linkCode=tr1&tag=doy07-20&linkId=amzn1.campaign.26KRYVMHI7P85_1726660573976)
   - 【Split-type Magnetic Design】 With magnets in each these 2*2600mAh hand warmers can combine into a palm-sized also easily separated to fit into two pockets of jacket or gloves.
   - 【Pocket-friendly, Compact Body】 Lipstick size, easy to slip into your pocket or your pack. Cylindrical body ergonomic design for easy grip.
   - 【Ultimate Comfortable Heating】 Made from aircraft-grade aluminum with a polished silicone surface that heats up in 3s, and 3 levels adjustable heats up quickly to 126°F
