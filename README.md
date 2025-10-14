@@ -1,20 +1,8 @@
 # My Affiliate Links - https://theo2612.github.io/7h30-amazon-affiliate-links/
 
-Welcome to My Affiliate Links page. Support the channel by shopping through [my Amazon affiliate link](https://amzn.to/3n1nAgO), my [TCM academy affiliate Link](https://academy.tcm-sec.com/courses/?affcode=770707_seneyt4m) and my [HackTheBox affiliate link](https://hacktheboxltd.sjv.io/WqZYEX)
+Welcome to My Affiliate Links page. Support the channel by shopping through the links below or let me know you are shopping for and I can generate a link right quick.
 
 ## Or Explore These Awesome Recommendations:
-
-- [OCOOPA 2 in 1 Magnetic Rechargeable Hand Warmers - **40% off NOW**](https://www.amazon.com/dp/B0CC17DW35?ref=t_ac_view_request_product_image&campaignId=amzn1.campaign.26KRYVMHI7P85&linkCode=tr1&tag=doy07-20&linkId=amzn1.campaign.26KRYVMHI7P85_1726660573976)
-  - 【Split-type Magnetic Design】 With magnets in each these 2*2600mAh hand warmers can combine into a palm-sized also easily separated to fit into two pockets of jacket or gloves.
-  - 【Pocket-friendly, Compact Body】 Lipstick size, easy to slip into your pocket or your pack. Cylindrical body ergonomic design for easy grip.
-  - 【Ultimate Comfortable Heating】 Made from aircraft-grade aluminum with a polished silicone surface that heats up in 3s, and 3 levels adjustable heats up quickly to 126°F
-  - 【Superior Safety】 Equipped with advanced safety chips, smart temperature control, It has UL/CE/FCC certified after rigorous testing to ensure user safety. 【Warm Winter Gifts】
-
-- [Anker Power Bank, 20,000mAh Portable Charger with Built-in USB-C Cable, 87W Max Fast Charging Battery Pack for Laptop, 2 USB-C and 1 USB-A, for MacBook, iPhone 16/15 Series, Samsung, Switch, and More](https://www.amazon.com/dp/B0CXDXP8VR?ref=t_ac_view_request_product_image&campaignId=amzn1.campaign.3K6WIELT3R9WM&linkCode=tr1&tag=doy07-20&linkId=amzn1.campaign.3K6WIELT3R9WM_1726660866102)
-  - 🔋【87W Power Distribution】Charge up to three devices simultaneously, with one device receiving up to 65W. Rapidly charge a 14" MacBook Pro to 50% in under 40 minutes.
-  - 🔋【Speedy Cable Charging】Built-in cable charges an iPhone 15 Pro to 58% or a MacBook Air to 52% in 30 minutes. Fully recharge the power bank in 1.5 hours with a 65W charger.
-  - 🔋【20,000mAh Capacity】Provides reliable, extended use for all devices and is airline-approved.
-  - 🔋【Durable USB-C Cable】Integrated cable withstands over 10,000 bends for long-lasting, dependable charging.
   
 - [**Linux Basics for Hackers:**](https://amzn.to/3CRhbfs)
   Get Started with Networking, Hacking, and Security in Kali
