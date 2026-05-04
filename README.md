@@ -29,6 +29,9 @@ Welcome to My Affiliate Links page. Support the channel by shopping through the 
   Bialetti - Musa, Stovetop Coffee Maker, Suitable for all Types of Hobs, Stainless Steel, 6 Cups, Silver
    
 # Hardware:
+- [Apple 2026 MacBook Neo 13-inch Laptop with A18 Pro chip: Built for AI and Apple Intelligence, Liquid Retina Display, 8GB Unified Memory, 256GB SSD Storage, 1080p FaceTime HD Camera; Indigo**:**](https://amzn.to/42MAN1P)
+  Ready for whatever your day brings, MacBook Neo flies through everyday tasks and apps in a durable aluminum design. With a brilliant 13-inch Liquid Retina display, the A18 Pro chip built for AI and Apple Intelligence, and up to 16 hours of battery life, it’s an amazing Mac at a surprising price. 
+
 - [**Apple 2026 MacBook Air 13-inch Laptop with M5 chip: Built for AI, 13.6-inch Liquid Retina Display, 16GB Unified Memory, 512GB SSD, 12MP Center Stage Camera, Touch ID, Wi-Fi 7; Midnight:**](https://amzn.to/4w5JGRr)
   MacBook Air with the M5 chip packs blazing speed and powerful AI capabilities into an incredibly portable design.
 
